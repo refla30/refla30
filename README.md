@@ -1,4 +1,4 @@
-## Boas vinda ao meu perfil💙 
+## Boass vinda ao meu perfil💙 
 
 Meu nome é Renata
 Estou estudando na alura
